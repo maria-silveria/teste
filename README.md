@@ -1,1 +1,1 @@
-palmeiras e campeao
+palmeiras e campeao da serie B
